@@ -1,0 +1,2 @@
+# SCRIPT
+create your characters
